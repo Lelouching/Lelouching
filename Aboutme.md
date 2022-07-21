@@ -1,3 +1,4 @@
 - 👋 Oii, eu sou o @Lelouching
+- 😃 Sou calmo, tranquilo e bastante lógico. Gosto de psicologia e lógica e coisas que as envolvem
 - 👀 Estou interessado em estudar programação e virar um FullStack
 - 📫 Pode me alcançar através do email: engenheirogamer123@gmail.com
