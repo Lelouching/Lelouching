@@ -1,0 +1,3 @@
+- 👋 Oii, eu sou o @Lelouching
+- 👀 Estou interessado em estudar programação e virar um FullStack
+- 📫 Pode me alcançar através do email: engenheirogamer123@gmail.com
